@@ -7,3 +7,4 @@
 5. If the future is yours, prove it.
 6. T1 is the past, the present and the future. 
 7. I've seen the rise and fall of many teams, but the one who stands in the end is me.
+8. I never left!
